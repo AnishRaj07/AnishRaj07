@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AnishRaj07
 - 👀 I’m interested in Data Science Field
-- 🌱 I’m currently learning Poornima University
+- 🌱 I’m Graduated from Poornima University (Jaipur)
 - 💞️ I’m looking to collaborate on My Mind type of People
 - 📫 How to reach me anishraj1807@gmail.com
 
